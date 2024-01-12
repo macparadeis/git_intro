@@ -1,2 +1,1 @@
 Mackenzie Paradeis
-18
